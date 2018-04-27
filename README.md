@@ -1,2 +1,0 @@
-# globalenglish
-Learning English online
